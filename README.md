@@ -10,18 +10,12 @@
 
 `` c + h freely◞
 
-`` i ocassionally have td but if i do it WILL be in my name . 
-
-`` theirs more info about me on the links on my page !!
-
-`` PLEASE only use she/her on me . 
+`` theirs more info about me on the links on my page !! 
 
 `` im very sensitive so im sorry if i get upset◞
 
 `` I LOVE BYLER !! BYLER IS LIFEEE !!
 
 <sup><sub>shameless is my current fav show, ⁀➴ i birthed ian gallagher . </sub></sup>
-
-`` my vapereon skin got on pinterest bro </3
 
 ![image alt](https://github.com/byleraddict/byleraddict/blob/dd2089e0bb27093429fbe7ff419ce011715c2d5c/ian%20manic%20in%20bed.jpg)
