@@ -10,8 +10,6 @@
 
 `` c + h freely◞
 
-`` you can call me mike ︵ will — or my ponies name !!
-
 `` i ocassionally have td but if i do it WILL be in my name . 
 
 `` theirs more info about me on the links on my page !!
