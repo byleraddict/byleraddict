@@ -4,7 +4,7 @@
 
 `` MOST of my socials are @byleraddict , if not its @byleraddictz !!
 
-<sup><sub>`` call me will ︵ mike ᴏʀ ian !!</sub></sup>
+<sup><sub>call me will ︵ mike ᴏʀ ian !!</sub></sup>
 
 `` sometimes i become semi , non verbal if im nervous — stressed ᴏʀ feel left out . 
 
