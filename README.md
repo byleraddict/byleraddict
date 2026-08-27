@@ -20,6 +20,6 @@
 
 `` I LOVE BYLER !! BYLER IS LIFEEE !!
 
-`` shameless is my current fav show, ⁀➴ i birthed ian gallagher . 
+<sup><sub>shameless is my current fav show, ⁀➴ i birthed ian gallagher . </sub></sup>
 
 `` my vapereon skin got on pinterest bro </3
