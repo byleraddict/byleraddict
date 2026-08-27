@@ -1,7 +1,7 @@
 ![image alt](https://github.com/byleraddict/byleraddict/blob/637aafc683dcaf8b1b608b5b63cb635e00033785/ian%202.jpg)
 
-## hihi im mike / will!
-
+## helloo !!
+<sup><sub>call me will, mike or ian !!</sub></sup>
 MOST of my socials are @byleraddict , if not its @byleraddictz !!
 
 i may become semi-verbal if im stressed or uncomfortable.
