@@ -1,6 +1,6 @@
 ![image alt](https://github.com/byleraddict/byleraddict/blob/637aafc683dcaf8b1b608b5b63cb635e00033785/ian%202.jpg)
 
-<sup><sub>call me will ︵ mike ᴏʀ ian !!</sub></sup>
+<sup><sub>call me will ︵ ᴏʀ sammy !!</sub></sup>
 
 `` MOST of my socials are @byleraddict , if not its @byleraddictz !!
 
